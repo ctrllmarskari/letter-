@@ -1,1 +1,2 @@
 # letter-
+"jangan cuekin aku."
